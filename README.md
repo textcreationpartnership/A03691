@@ -36,7 +36,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-AN ANSVVEARE Made by Rob. Biſhoppe of VVyncheſter, to a Booke entituled, THE DECLARATION OF SVCHE S
 1. The Praeface.
 
 #####Body#####
